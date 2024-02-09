@@ -1,5 +1,5 @@
 -  Hi, I’m @mLui-a
-- 🌱 I’m currently learning... evrythig
+-  I’m currently learning... evrythig
 -  Pronouns: 😄 
 -  Fun fact: im dumb 😄 
 
