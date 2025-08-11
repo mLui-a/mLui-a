@@ -1,6 +1,5 @@
 -  Hi, I’m @mLui-a
--  I’m currently learning... evrythig
--  Pronouns: 😄 
+-  I’m currently learning...everything
 -  Fun fact: im dumb 😄 
 
 <!---
